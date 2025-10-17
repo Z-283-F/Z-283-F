@@ -9,7 +9,7 @@
    ౨ৎ      . " demisexual / bigender / bisexual . ! "    𐙚
   </p>
   <p align="center">
-   ౨ৎ      . " btw i am 15 y.o. , if you dont wanna int with people in this age PLEASE tell me, dont block or remove me without letting me know :( "    𐙚
+   ౨ৎ      .  btw i am 15 y.o. , if you dont wanna int with people in this age PLEASE tell me, dont block or remove me without letting me know :(     𐙚
   </p>
   
 <p align="center">
