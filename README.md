@@ -56,3 +56,6 @@
 </p>
 <img width="350" height="282" alt="image" src="https://github.com/user-attachments/assets/233d19a9-b367-4c1a-9dd7-b1f0b644b1c8" />
 <img width="350" height="333" alt="image" src="https://github.com/user-attachments/assets/914111c3-f810-4689-805b-03475a86c237" />
+______________________________________________________________________________________________________________________________________________
+<img width="431" height="270" alt="image" src="https://github.com/user-attachments/assets/f3231e76-13d2-4599-97a7-386eec32c773" />
+okay so i legit have no clue who this is but i fear they have copied me fully. if you spot them do not compliment their skin. 
