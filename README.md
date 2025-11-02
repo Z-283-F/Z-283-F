@@ -59,3 +59,5 @@
 ______________________________________________________________________________________________________________________________________________
 <img width="431" height="270" alt="image" src="https://github.com/user-attachments/assets/f3231e76-13d2-4599-97a7-386eec32c773" />
 okay so i legit have no clue who this is but i fear they have copied me fully. if you spot them do not compliment their skin. 
+
+# ALERT!!  I FEAR WE HAVE A PERSON WHO COPIES EVERY SKIN IN PT. BE AWARE.
