@@ -55,8 +55,3 @@
 <img width="1487" height="1000" alt="Untitled27_20250829170027" src="https://media.discordapp.net/attachments/1388919345811554445/1428455769992335411/Untitled76_20251016205242.jpg?ex=68f2909a&is=68f13f1a&hm=07df86b22920a1ba8696facf65341eb769e36aeff20c83fc7838d5be8a7e7ecd&=&format=webp&width=1429&height=100" />
 </p>
 <img width="350" height="282" alt="image" src="https://github.com/user-attachments/assets/233d19a9-b367-4c1a-9dd7-b1f0b644b1c8" />
-<img width="350" height="333" alt="image" src="https://github.com/user-attachments/assets/914111c3-f810-4689-805b-03475a86c237" />
-______________________________________________________________________________________________________________________________________________
-<img width="431" height="270" alt="image" src="https://github.com/user-attachments/assets/f3231e76-13d2-4599-97a7-386eec32c773" />
-
-okay so i legit have no clue who this is but i fear they have copied me fully. if you spot them do not compliment their skin. 
