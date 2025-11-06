@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-      ౨ৎ      . " Nina / Marcello / Marc . ! "    𐙚
+      ౨ৎ      . " Nina / Marcello / Marc / Avery . ! "    𐙚
   </p>
   <p align="center">
    ౨ৎ      . " demisexual / bigender / bisexual . ! "    𐙚
