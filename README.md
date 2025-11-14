@@ -31,7 +31,7 @@
         
 </p>
 <p align="center">
-    ── ⟡ ˙ basic dni, i may be fine with SOME stuff   ̟ ⊹
+    ── ⟡ ˙ basic dni criteria, i may be fine with SOME stuff   ̟ ⊹
   </p>
   <p align="center">
     ── ⟡ ˙ dni under 11 unless i've known you beforehand   ̟ ⊹
