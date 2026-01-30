@@ -5,11 +5,11 @@
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Zalando+Sans+Expanded&weight=600&size=23&duration=3000&pause=1000&color=714744&width=840&lines=++++%22+If+you...+when+you%2C+like%2C+believe+me+in+a+spiritual+way...;..well+i+don't+know+exactly+what+happens+but..;..like%2C+it+can+make+you+happier+around+a+certain+time+of+the+year..;+++++++..they+call+it..+beesmas.;+++++++..but+not+right+now.+%22" alt="Typing SVG" /></a>
 
-<br><br>
+<br>
 <p align="center">
       · · ─ ·ʚɞ· ─ · ·
 
-<br><br>
+<br>
 
 
 
