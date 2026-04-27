@@ -1,10 +1,9 @@
 <p align="center">
-<img width="4067" height="1100" alt="image" src="https://github.com/user-attachments/assets/b4de354f-a94d-4384-8d69-d7f9383eda1d" />
+<img width="4067" height="1171" alt="image" src="https://github.com/user-attachments/assets/b75fbb59-0c04-41da-8c03-4d94496080ec" />
 
 
-<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Zalando+Sans+Expanded&weight=600&size=23&duration=3000&pause=1000&color=714744&center=true&vCenter=true&width=840&lines=%22+If+you...+when+you%2C+like%2C+believe+me+in+a+spiritual+way...;..well+i+don't+know+exactly+what+happens+but..;..like%2C+it+can+make+you+happier+around+a+certain+time+of+the+year..;+++++++..they+call+it..+beesmas.;..but+not+right+now.+%22" alt="Typing SVG" /></a>
-</p>
+
+
 
 <br>
 <p align="center">
@@ -12,20 +11,31 @@
 
 <br>
 
-
-
-<p align="center">
-      <img width="1300" height="1500" alt="image" src="https://github.com/user-attachments/assets/3fd8721c-5879-42a1-aeaf-6772523c6219" />
-
-
-
+<br><br><br>
 
 <p align="center">
-  <font size="0.5">c+h always</font>
+      wip
+
+
+<br><br><br><br>
+<p align="center">
+${\color{#3187b5}\text{"ⳕ ⲱⳕⳑⳑ τⲇқⲉ τⲏⲉ⳽ⲉ τⲟқⲉⲛ⳽ ⳕⲛ ⲩⲟυⲅ ⲏⲟⲛⲟⲅ."}}$
+      <p align="center">
+${\color{#123875}\text{"ⳕ ⲇϻ fⲟⲅⲉⳳⲉⲅ ⳋⲅⲇτⲉfυⳑ fⲟⲅ ⲩⲟυⲅ ⲉffⲟⲅτ⳽, ⳏⳑⲇⲩⲉⲅ."}}$
+
+<br><br>
+<p align="center">
+<img width="200" height="200" alt="aspa" src="https://github.com/user-attachments/assets/fc1c405a-5392-473a-9e4c-25c69cd958d6" />
+
+<br><br>
+
+<p align="center">
+  ${\color{#7d9091}\text{𝔠+𝔥 𝔞𝔩𝔴𝔞𝔶𝔰}}$
 </p>
 
+
  <p align="center">
-  <font size="0.5">!! check straw before you int. !!</font>
+  ${\color{#7d9091}\text{!! 𝔠𝔥𝔢𝔠𝔨 𝔰𝔱𝔯𝔞𝔴 𝔟𝔢𝔣𝔬𝔯𝔢 𝔶𝔬𝔲 𝔦𝔫𝔱 !!}}$
 </p>
       
 <br>
@@ -37,8 +47,4 @@
   <a href="https://mspainterr.straw.page/">STRAWPAGE</a>
 </div>
 
-<br><br><br>
-
-<p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/b2d502ea-64bb-457d-975a-d5c356b2cb90" />
 
