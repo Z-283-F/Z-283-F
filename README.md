@@ -7,7 +7,8 @@
 
 <br>
 <p align="center">
-      · · ─ ·ʚɞ· ─ · ·
+  ${\color{#7d9091}\text{· · ─ ·ʚɞ· ─ · ·}}$
+</p><p align="center">
 
 <br>
 
