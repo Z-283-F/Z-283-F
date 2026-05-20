@@ -17,6 +17,8 @@
 <p align="center">
       <img width="1787" height="1307" alt="image" src="https://github.com/user-attachments/assets/26f7ba89-cb5e-461a-aa86-2db9fc7e67e1" />
 
+ <p align="center">
+  ${\color{#7d9091}\text{𝘢𝘳𝘵 𝘣𝘺 𝘮𝘦}}$
 
 
 <br><br><br><br>
